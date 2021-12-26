@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jude
+- 👀 I’m interested in Volleyball, the Rams, and Coding
+- 🌱 I’m currently learning General Studies with a focus on 
+- 💞️ I’m looking to collaborate on: Nothing much right now
+- 📫 How to reach me: Please Don't
